@@ -1,0 +1,1 @@
+writing in js because im not 🔥 BLAZINGLY FAST 🔥 😔
